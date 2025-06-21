@@ -2,7 +2,7 @@
 
 🎯 **Vice President | Head of Product | Product Strategy & Growth | Fintech | Travel | OTT | B2C Platforms**
 
-💼 13+ years building impactful products across industries: Online Travel, Payment Gateways, Fintech, OTT & eCommerce.
+💼 15+ years building impactful products across industries: Online Travel, Payment Gateways, Fintech, OTT & eCommerce.
 
 ---
 
