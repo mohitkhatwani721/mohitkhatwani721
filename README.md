@@ -25,7 +25,7 @@ Currently serving as **Project Head at [Evision](http://www.evision.ae/)**, I’
 ---
 
 ## 🚀 Key Projects
-### Product Development and Delivery (Evision - Etisalt) - UAE
+### Currently - Product Development and Delivery (Evision - Etisalt) - UAE
 
 ### 🔹 Paytm Travel (AVP Product)
 - 🚂 Launched “Free Cancellation” & “Easy Tatkal” – boosting GMV by $4.2M+ and reducing booking times from 7.5 to 1.5 mins.
